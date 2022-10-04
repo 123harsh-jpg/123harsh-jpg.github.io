@@ -1,4 +1,0 @@
-# 123harsh-jpg.github.io
-Webpage is made by HARSHIT MISHRA 
-ALL COPYRIGHTS ARE RESERVED TO HARSHIT MISHRA
-LMAO DED
